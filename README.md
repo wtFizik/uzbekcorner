@@ -1,4 +1,0 @@
-# uzbekcorner
-# uzbekcorner
-# uzbekcorner
-# uzbekcorner
